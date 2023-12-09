@@ -1,2 +1,2 @@
 # Motivational-Poster
-![Uploading image.png…]()
+![image](https://github.com/rakshitgupta23/Motivational-Poster/assets/114903166/1a44adb6-0ffc-48a4-bc2a-ce985842f683)
